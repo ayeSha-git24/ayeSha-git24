@@ -17,7 +17,7 @@
 
 - 📫 How to reach me **sdayesha24@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/17mAHSKW0U71ZauUz5cQxuR3CqZY3Mt7L/view?usp=sharing](https://drive.google.com/file/d/17mAHSKW0U71ZauUz5cQxuR3CqZY3Mt7L/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/17mAHSKW0U71ZauUz5cQxuR3CqZY3Mt7L/view?usp=sharing)
 
 - ⚡ Fun fact **Loves to write code, meet people, learn, grow as a person 🙌❤️**
 
